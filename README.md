@@ -34,4 +34,4 @@ José Manuel Rosado
 
 ## Modificación
 
-Modificaciones hechas Por Raúl, Pedro y Joan
+Modificaciones hechas por Raúl, Pedro y Joan
